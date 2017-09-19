@@ -1,4 +1,4 @@
-<b>智卓星网最新发布平台地址</b>
+智卓星网最新发布平台地址
 <br>最新连接地址:http://wycmgs.com/data/y/
 <br>请收藏以下发布地址【方便更新连接地址】<br>
 1:http://www.jianshu.com/u/2964482eb750
