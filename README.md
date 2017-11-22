@@ -1,5 +1,5 @@
 智卓星网最新发布平台地址
-<br>最新导航平台连接地址:http://wycmgs.com/data/y/
+<br>最新导航平台连接地址:<br>1号服务器:http://www.shrcsh.com/data/y/<br>2号服务器:http://wycmgs.com/data/y/
 <br>请收藏以下发布地址【方便更新连接地址】<br>
 1:http://www.jianshu.com/u/2964482eb750
 <br>2:https://github.com/zhizg/b/blob/master/README.md
